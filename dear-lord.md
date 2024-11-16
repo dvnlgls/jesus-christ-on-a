@@ -10,3 +10,4 @@ Phrases:
 - Jesus Christ on a rollercoaster	(@saturn55)
 - Jesus in a chicken basket	(@denisentexas)
 - Jesus in a pink Cadillac	(@denisentexas)
+- Jesus in a rickety bus (@denisentexas)
