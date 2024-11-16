@@ -11,3 +11,4 @@ Phrases:
 - Jesus in a chicken basket	(@denisentexas)
 - Jesus in a pink Cadillac	(@denisentexas)
 - Jesus in a rickety bus (@denisentexas)
+- Jesus Christ on a crockpot (@saturn55)
